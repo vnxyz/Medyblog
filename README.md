@@ -34,3 +34,5 @@ https://www.medyblog.com/post/what-causes-ear-infections-in-a-baby
 https://www.medyblog.com/post/what-is-obstructive-sleep-apnea-syndrome-osas-symptoms-causes-diagnosis-and-treatment
 https://www.medyblog.com/post/what-is-sinus-what-is-sinus-problem
 https://www.medyblog.com/post/white-fungus-fungal-infections-in-post-covid
+
+https://www.medyblog.com/post/mucormycosis-black-fungus-treatment-amphotericin-b-injection-isavuconazole-posaconazole-cost-india
